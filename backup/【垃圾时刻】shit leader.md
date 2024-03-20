@@ -1,0 +1,1 @@
+- shit leader with shit decision
